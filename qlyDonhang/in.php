@@ -1,0 +1,1 @@
+<p> đợi xíu máy in bị kẹt rồi ba:3</p>
